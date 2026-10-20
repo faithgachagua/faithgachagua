@@ -122,4 +122,3 @@ I'm open to professional connections, collaborative projects, and opportunities 
 ---
 
 *Building useful technology. Solving real problems. Growing one project at a time.*
-](https://www.samcomtechnologies.com/careers)
